@@ -7,3 +7,8 @@
   * SMK TELKOM MALANG
   
   
+![Screen Shoot 1](https://docs.google.com/uc?id=0B8vzO9BCgQxuTmUxQmlfb01xdjQ)
+
+![Screen Shoot 2](https://docs.google.com/uc?id=0B8vzO9BCgQxuT2Vidm5sS1RfdlU)
+
+![Screen Shoot 3](https://docs.google.com/uc?id=0B8vzO9BCgQxuemJpM0dFbV9aSWs)
